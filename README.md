@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @juice28g
+- 👀 I’m interested in ... A FEW THINGS
+- 🌱 I’m currently learning ... BASICS
+- 💞️ I’m looking to collaborate on ... NOT SURE YET
+- 📫 How to reach me ... mrthreemuch@gmail.com
+- 😄 Pronouns: ... FOR HER I WOULD DO ANYTHING
+- ⚡ Fun fact: ... YOU CANT WASH YOUR EYES WITH SOAP 
